@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **anuragsharma0711@gmail.com**
 
-- ⚡ Fun fact **mmmhhh.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
